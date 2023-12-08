@@ -1,1 +1,1 @@
-# Nurzat-portfolip
+# Nurzat-portfolio 
